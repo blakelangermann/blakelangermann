@@ -1,2 +1,1 @@
 <img width="470" height="285" alt="Image" src="https://github.com/user-attachments/assets/3cb5326b-b091-42c3-b96d-a5508e16ba57" /> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31kvnesvcdz4pdymp4fiix52onve&cover_image=true&theme=novatorem&show_offline=false&background_color=572f65&interchange=true&profanity=false&hide_remaster=false&bar_color=e8a8ff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31kvnesvcdz4pdymp4fiix52onve&redirect=true)
-<code style="color:Fuchsia">ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ</code>
